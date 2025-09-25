@@ -1,1 +1,1 @@
-"Tu s¥ strony kt¢re wykonuje na lekcjach" 
+Tu sÄ… strony ktÃ³re tworze na lekcji
